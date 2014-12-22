@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The assault of the sacramēt of the Altar containyng aswell sixe seuerall assaultes made from tyme t
+
 1. ¶ To the reader.
 
 #####Body#####
